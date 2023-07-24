@@ -1,0 +1,5 @@
+- 👋 oi, eu sou a @sleepyleca
+- 👀 estou aprendendo a lidar com esses aplicativos de programação.
+- 💞️ sou de paulo frontin.
+- gosto de jogar futsal.
+- amo os animais, especialmente os gatos.
